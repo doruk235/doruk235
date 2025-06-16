@@ -7,3 +7,4 @@ You can find all of my finished games on [itch.io](https://doruk2.itch.io/)
 
 You can find my music on [SoundCloud](https://soundcloud.com/user-859288814)
 
+My [CV](https://github.com/doruk235/doruk235/blob/main/Doruk%20Alko%C3%A7ak%20CV.pdf)
